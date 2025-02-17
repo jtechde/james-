@@ -1,13 +1,13 @@
 
-<a href="https://files.catbox.moe/xw348m.jpg"><img src="https://files.catbox.moe/5b2d6j.jpg" alt="02" border="0" /></a>                     
+<a href="tohttps://files.catbox.moe/xw348m.jpg"><img src="https://files.catbox.moe/xw348m.jpg" alt="02" border="0" /></a>                     
     <h1 align="center">💀JAMES MD 💀</h1>
   </a>
 
 
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a><img src='https://files.catbox.moe/xw348m.jpg'/></a>
 
 
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a><img src='https://files.catbox.moe/xw348m.jpg'/></a>
 
 ## 𝐇𝐄𝐑𝐄 𝐈𝐒 𝐓𝐇𝐄 𝐏𝐑𝐎𝐆𝐑𝐄𝐒𝐒 𝐅𝐎𝐑 JAMES MD
 <a href="https://files.catbox.moe/xw348m.jpg" alt="2" border="0" /></a>
