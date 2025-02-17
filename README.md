@@ -1,7 +1,7 @@
 
 
   
-  [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=blue&lines=𝗔𝗠+𝗝𝗔𝗠𝗘𝗦+𝗠𝗗+𝗕𝗢𝗧)](https://git.io/typing-svg)
+  [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=blue&lines=𝗔𝗠+𝗝𝗔𝗠𝗘𝗦+𝗠𝗗+💀+𝗕𝗢𝗧+𝗰𝗿𝗲𝗮𝘁𝗲𝗱+𝗯𝘆+𝗷𝗮𝗺𝗲𝘀+𝘁𝗲𝗰𝗵+𝗱𝗼𝗻𝘁+𝘁𝗿𝘆+𝘁𝗼+𝗰𝗹𝗼𝗻𝗲+𝗺𝗲+💀)](https://git.io/typing-svg)
 
  `🩸⃟༑༑𝗝𝗔𝗠𝗘𝗦 𝗠𝗗       `🩸⃟༑༑𝗕𝗬 𝗝𝗔𝗠𝗘𝗦 𝗧𝗘𝗖𝗛
 
