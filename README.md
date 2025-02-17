@@ -12,13 +12,13 @@
 <a href="https://files.catbox.moe/xw348m.jpg" alt="2" border="0" /></a>
 
 <p align="center">
-<a href="https://github.com/carl24tech/followers"><img title="CarlTech-Followers" src="https://img.shields.io/github/followers/carl24tech?color=blue&style=flat-square"></a>
+<a href="https://github.com/carl24tech/followers"><img title="CarlTech-Followers" src="https://img.shields.io/github/followers/carl24tech?color=red&style=flat-square"></a>
     
-<a href="https://github.com/carl24tech/Cyberion-Spark-X/stargazers/"><img title="Stars" src="https://img.shields.io/github/stars/carl24tech/Cyberion-Spark-X?color=blue&style=flat-square"></a>
+<a href="https://github.com/carl24tech/Cyberion-Spark-X/stargazers/"><img title="Stars" src="https://img.shields.io/github/stars/carl24tech/Cyberion-Spark-X?color=red&style=flat-square"></a>
 
-<a href="https://github.com/carl24tech/Cyberion-Spark-X/network/members"><img title="Forks" src="https://img.shields.io/github/forks/carl24tech/Cyberion-Spark-X?color=yellow&style=flat-square"></a>
+<a href="https://github.com/carl24tech/Cyberion-Spark-X/network/members"><img title="Forks" src="https://img.shields.io/github/forks/carl24tech/Cyberion-Spark-X?color=red&style=flat-square"></a>
 
-<a href="https://github.com/carl24tech/Cyberion-Spark-X/"><img title="Size" src="https://img.shields.io/github/repo-size/carl24tech/Cyberion-Spark-X?style=flat-square&color=pink"></a>
+<a href="https://github.com/carl24tech/Cyberion-Spark-X/"><img title="Size" src="https://img.shields.io/github/repo-size/carl24tech/Cyberion-Spark-X?style=flat-square&color=red"></a>
 
 <a href="https://github.com/carl24tech/Cyberion-Spark-X/graphs/commit-activity"><img height="20" src="https://img.shields.io/badge/Maintained%3F-yes-green.svg"></a>&nbsp;&nbsp;
 </p>
@@ -35,23 +35,23 @@
 ## HOW TO GET  `🩸⃟༑༑JAMES MD💀
 
   
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=blue&lines=𝗙𝗢𝗥𝗞+𝗔𝗡𝗗+𝗦𝗧𝗔𝗥+𝗥𝗘𝗣𝗢)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=red&lines=𝗙𝗢𝗥𝗞+𝗔𝗡𝗗+𝗦𝗧𝗔𝗥+𝗥𝗘𝗣𝗢)](https://git.io/typing-svg)
  
 
   
    
-   <a href="https://github.com/carl24tech/Cyberion-Spark-X/fork"><img title="FORK-REPO" src="https://img.shields.io/badge/FORK-REPO-h?color=green&style=for-the-badge&logo=mazda" width="297" height="40.45"/></a></p>
+   <a href="https://github.com/carl24tech/Cyberion-Spark-X/fork"><img title="FORK-REPO" src="https://img.shields.io/badge/FORK-REPO-h?color=red&style=for-the-badge&logo=mazda" width="297" height="40.45"/></a></p>
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
  
  
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=blue&lines=𝗦𝗘𝗦𝗦𝗜𝗢𝗡+𝗜𝗗+𝗦𝗜𝗧𝗘+𝗜𝗦+𝗛𝗘𝗥𝗘)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=red&lines=𝗦𝗘𝗦𝗦𝗜𝗢𝗡+𝗜𝗗+𝗦𝗜𝗧𝗘+𝗜𝗦+𝗛𝗘𝗥𝗘)](https://git.io/typing-svg)
  
 
 
-  <a href="https://spark-x-session-c.onrender.com"><img title="GET-SESSION ID HERE" src="https://img.shields.io/badge/GET-SESSION ID HERE-h?color=green&style=for-the-badge&logo=render" width="230" height="38.45"/></a></p>
+  <a href="https://spark-x-session-c.onrender.com"><img title="GET-SESSION ID HERE" src="https://img.shields.io/badge/GET-SESSION ID HERE-h?color=red&style=for-the-badge&logo=render" width="230" height="38.45"/></a></p>
 
   
   <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
