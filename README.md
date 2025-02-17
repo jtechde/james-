@@ -8,7 +8,7 @@
 
 <a><img src='https://files.catbox.moe/xw348m.jpg'/></a>
 
-## 𝐇𝐄𝐑𝐄 𝐈𝐒 𝐓𝐇𝐄 𝐏𝐑𝐎𝐆𝐑𝐄𝐒𝐒 𝐅𝐎𝐑  `🩸⃟༑༑ *JAMES MD*`🩸⃟༑༑
+## `🩸⃟༑༑ 𝐇𝐄𝐑𝐄 𝐈𝐒 𝐓𝐇𝐄 𝐏𝐑𝐎𝐆𝐑𝐄𝐒𝐒 𝐅𝐎𝐑  `🩸⃟༑༑ JAMES MD🩸⃟༑༑
 <a href="https://files.catbox.moe/xw348m.jpg" alt="2" border="0" /></a>
 
 <p align="center">
@@ -32,10 +32,10 @@
 
 
 
-## HOW TO GET SPARK-X-2025 
+## HOW TO GET  `🩸⃟༑༑JAMES MD💀
 
   
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=blue&lines=𝗙𝗢𝗥𝗞+𝗔𝗡𝗗+𝗦𝗧𝗔𝗥+𝗥𝗘𝗣𝗢)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=blue&lines=𝗙𝗢𝗥𝗞+ `🩸⃟༑༑+𝗔𝗡𝗗+𝗦𝗧𝗔𝗥+𝗥𝗘𝗣𝗢)](https://git.io/typing-svg)
  
 
   
@@ -47,7 +47,7 @@
 
  
  
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=blue&lines=𝗦𝗘𝗦𝗦𝗜𝗢𝗡+𝗜𝗗+𝗦𝗜𝗧𝗘+𝗜𝗦+𝗛𝗘𝗥𝗘)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=blue&lines=𝗦𝗘𝗦𝗦𝗜𝗢𝗡+TO `🩸⃟༑༑+𝗜𝗗+𝗦𝗜𝗧𝗘+𝗜𝗦+𝗛𝗘𝗥𝗘)](https://git.io/typing-svg)
  
 
 
@@ -62,7 +62,7 @@
   
 
  
-## 𝐅𝐎𝐑 𝐎𝐍𝐄-𝐓𝐀𝐏 𝐃𝐄𝐏𝐋𝐎𝐘𝐌𝐄𝐍𝐓 𝐔𝐒𝐄 𝐓𝐇𝐈𝐒 𝐁𝐔𝐓𝐓𝐎𝐍
+## 𝐅𝐎𝐑 𝐎𝐍𝐄-𝐓𝐀𝐏  `🩸⃟༑༑𝐃𝐄𝐏𝐋𝐎𝐘𝐌𝐄𝐍𝐓 `🩸⃟༑༑ 𝐔𝐒𝐄 𝐓𝐇𝐈𝐒 𝐁𝐔𝐓𝐓𝐎𝐍
 
    🕳IF YOU DON'T HAVE A HEROKU ACCOUNT...CREATE ONE
    
@@ -73,7 +73,7 @@
  <a href="https://dashboard.heroku.com/new?template=https://github.com/Slayer128/heroku-ios"><img title="DEPLOY-ON HEROKU" src="https://img.shields.io/badge/DEPLOY-ON HEROKU-h?color=purple&style=for-the-badge&logo=heroku" width="220" height="38.45"/></a></p>
 
  
- [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&size=30&pause=1000&color=0000FF&center=true&vCenter=true&width=815&height=60&lines=▭+▬+▭+▬+▭+▬+▭+▬+▭+▬+▭)](https://git.io/typing-svg) 
+ [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&size=30&pause=1000&color=0000FF&center=true&vCenter=true&width=815&height=60&lines=▭+ `🩸⃟༑༑+▭+ `🩸⃟༑༑+▭+ `🩸⃟༑༑+▭+ `🩸⃟༑༑+▭+ `🩸⃟༑༑+▭)](https://git.io/typing-svg) 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
@@ -88,5 +88,5 @@
 
 
 <a href="https://files.catbox.moe/qoph4w.jpg"><img src="https://files.catbox.moe/5b2d6j.jpg" alt="02" border="0" /></a>                     
-    <h1 align="center">ENJOY</h1>
+    <h1 align="center"> `🩸⃟༑༑ENJOY `🩸⃟༑༑</h1>
   </a>
