@@ -1,6 +1,6 @@
 
 <a href="tohttps://files.catbox.moe/xw348m.jpg"><img src="https://files.catbox.moe/xw348m.jpg" alt="02" border="0" /></a>                     
-    <h1 align="center">💀JAMES MD BOT DEVELOPED BY JAMES TECH💀</h1>
+    <h1 align="center">💀<i>JAMES MD BOT DEVELOPED BY JAMES TECH</i>💀</h1>
   </a>
 
 
