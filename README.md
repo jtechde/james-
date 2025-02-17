@@ -36,11 +36,7 @@
 
   
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=red&lines=𝗙𝗢𝗥𝗞+𝗔𝗡𝗗+𝗦𝗧𝗔𝗥+𝗥𝗘𝗣𝗢)](https://git.io/typing-svg)
- 
 
-  
-   
-   <a href="https://github.com/carl24tech/Cyberion-Spark-X/fork"><img title="FORK-REPO" src="https://https://img.shields.io/badge/FORK-REPO-h?color=red&style=for-the-badge&logo=gaming" width="297" height="40.45"/></a></p>
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
