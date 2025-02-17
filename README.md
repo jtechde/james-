@@ -1,6 +1,8 @@
             
     <h1 align="center">💀<b>JAMES MD BOT DEVELOPED BY JAMES TECH</b>💀</h1>
   </a>
+
+  
   [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=blue&lines=james+tech+legit+services)](https://git.io/typing-svg)
 
  
