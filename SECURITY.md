@@ -1,5 +1,5 @@
 
-# Security Policy of CarlTech Codes 
+# Security Policy of  `🩸⃟༑༑james
 
 ## Supported Versions
 
@@ -7,7 +7,7 @@
 Use this section to tell people about which versions of your project are
 currently being supported with security updates.
 
-| Version | Supported          |
+|  `🩸⃟༑༑Version |  `🩸⃟༑༑Supported          |
 | ------- | ------------------ |
 | 7.1.x   | :white_check_mark: |
 | 6.0.x   | :x:                |
