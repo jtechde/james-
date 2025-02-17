@@ -3,7 +3,7 @@
   
   [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=blue&lines=james+tech+legit+services)](https://git.io/typing-svg)
 
- ##JAMES TECH BOT
+ `🩸⃟༑༑𝗝𝗔𝗠𝗘𝗦 𝗠𝗗
 
 
 <a><img src='https://files.catbox.moe/xw348m.jpg'/></a>
